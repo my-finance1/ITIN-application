@@ -1,1 +1,1 @@
-<a href="https://taxsym.com/itin" target="_blank" rel="noopener noreferrer">ITIN number application</a>
+If you're a non-resident or international individual who needs to file U.S. taxes, you can easily start your <a href="https://taxsym.com/itin" target="_blank" rel="noopener noreferrer">ITIN number application</a> online with Taxsym—no passport mailing or in-person visits required.
